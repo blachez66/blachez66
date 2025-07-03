@@ -1,10 +1,10 @@
-- 👋 Hi, I’m z66
-- 👀 I’m interested in badminton/hot pot/hiphop/shopping online
-- 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 1807699931@qq.com
-- 😄 Pronouns: She/her
-- ⚡ Fun fact: BLANK
+- 👋 Hi, I’m blachez66
+- 😄 You can call me z66 for short!
+- 💞️ I'm a die-hard fan of TNT❗
+- 👀 I’m a NSWER/ONCE/MIDZY/STAY(Oh I reeeally love JYP artists...🥰)
+- 🌱 I’m a student majoring in CS at Zhejiang University
+- 📫 You can contact me via email 1807699931@qq.com
+- ⚡ Anything else...? Waiting for updating...
 
 <!---
 blachez66/blachez66 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
