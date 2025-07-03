@@ -1,4 +1,4 @@
-- 👋 Hi, I’m blachez66
+- 👋 Hi, I’m blanchez66
 - 😄 You can call me z66 for short!
 - 💞️ I'm a die-hard fan of TNT❗
 - 👀 I’m a NSWER/ONCE/MIDZY/STAY(Oh I reeeally love JYP artists...🥰)
